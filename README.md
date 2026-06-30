@@ -1,0 +1,1 @@
+# CodeAlphaIoT_MiniprojectonSmartCities
